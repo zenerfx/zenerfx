@@ -15,6 +15,7 @@ You can call me **Michael** — a passionate and curious tech enthusiast current
 
 ## 💬 Let's Connect!
 - 📸 Instagram: [@mklsmth_](https://instagram.com/mklsmth_)
+- 💼 LinkedIn: [Mikail Samyth Habibillah](https://www.linkedin.com/in/mikailsamythhabibillah/)
 - 📫 Feel free to reach me for tech talks, or just to say hi!
 
 ## ⚡ Fun Fact
